@@ -1,1 +1,0 @@
-# Berserk-Heroes.-Expanded-rules
